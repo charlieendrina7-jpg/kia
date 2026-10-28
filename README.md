@@ -1,6 +1,6 @@
 # 𝓱𝓮𝓵𝓵𝓸 𝓶𝔂 𝓼𝓽𝓪𝓻𝓼, 𝓘'𝓶 𝓴𝓲𝓪!
 
-![Banner Image](file:///var/folders/k3/rp6ld9fj2nxg0rt76n_2skdc0000gn/T/TemporaryItems/NSIRD_screencaptureui_HFYPDl/Screenshot%202026-10-28%20at%209.57.09%E2%80%AFpm.png)
+![Banner Image](file:///var/folders/k3/rp6ld9fj2nxg0rt76n_2skdc0000gn/T/TemporaryItems/NSIRD_screencaptureui_oxickj/Screenshot%202026-10-29%20at%209.22.25%E2%80%AFam.png)
 
 ## 𝓪𝓫𝓸𝓾𝓽 𝓶𝓮
 
